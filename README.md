@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **FPT University**
 
-- 📫 How to reach me **toannb1204@gmail.com**
+- 📫 How to reach me **btoan.1204@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
